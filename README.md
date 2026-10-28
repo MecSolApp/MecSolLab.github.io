@@ -1,1 +1,0 @@
-# MecSolLab.github.io
